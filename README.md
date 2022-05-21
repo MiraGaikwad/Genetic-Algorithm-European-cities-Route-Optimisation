@@ -1,4 +1,4 @@
-. I wanted to visit about 12 cities each of different countries. 
+I wanted to visit about 12 cities each of different countries. 
 Starting from Edinburgh, planned to visit the cities including 
 Budapest, Geneva, Paris, Brussels, Zurich, Amsterdam, Rome, Prague, Belfast, Berlin, Barcelona and return to Edinburgh. 
 
